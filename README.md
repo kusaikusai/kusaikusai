@@ -28,12 +28,7 @@ i get that im a horrible person, i get that proshiping/darkshiping is wrong, i g
 - scraps x poppy
 - astro x sprout
 - yatta x looey
-- dazzle x razzle
-- goob x scraps
-- bobette x coal
 - bobette x dandy
-- dandy x pebble
-- coal x pebble
 - tisha x finn
 - tisha x shelly
 - tisha x vee
@@ -44,7 +39,6 @@ i get that im a horrible person, i get that proshiping/darkshiping is wrong, i g
 - looey x razzle
 - astro x dazzle
 - scraps x razzle
-- cosmo x ginger
 - dandy x sprout
 - boxten x poppy
 - bobette x dandy x astro
@@ -55,3 +49,5 @@ i get that im a horrible person, i get that proshiping/darkshiping is wrong, i g
 ik its a lot... ![image_2025-04-09_082719388](https://github.com/user-attachments/assets/8b053362-88db-483b-94d2-8351793a9838)
 ---
 ## if u dont like any of these that is totally ok!!! im a proshipper for a reason, ship what you want :3333
+
+small update... i stopped doing incest/zoo darkships- im still doing dead dove tho. I ALSO NEVER SHIP MINOR X ADULT but im not gonna hate if u do
