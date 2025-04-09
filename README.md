@@ -1,3 +1,7 @@
+i get that im a horrible person, i get that proshiping/darkshiping is wrong, i get that you want me to kill myself but please remember that i am an actual living human being. i get that i deserve nothing, i get that im disgusting, you dont have to tell me this everyday. im a child, a child who is already struggling at that. sure, you want to make it worse because im disgusting and you want me gone, but harassing one singular child over the internet is not gonna change a whole community of people. im not trying to offend anyone, im not trying to bother anybody, i just want to live. please.
+
+
+
 ## ![image_2025-04-09_082344802](https://github.com/user-attachments/assets/2bd95192-a092-440d-bfe9-2df1b21c55f9) my ships!
 
 
