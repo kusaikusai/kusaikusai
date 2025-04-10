@@ -1,4 +1,3 @@
-i get that im a horrible person, i get that proshiping/darkshiping is wrong, i get that you want me to kill myself but please remember that i am an actual living human being. i get that i deserve nothing, i get that im disgusting, you dont have to tell me this everyday. im a child, a child who is already struggling at that. sure, you want to make it worse because im disgusting and you want me gone, but harassing one singular child over the internet is not gonna change a whole community of people. im not trying to offend anyone, im not trying to bother anybody, i just want to live. please.
 
 
 
@@ -50,4 +49,6 @@ ik its a lot... ![image_2025-04-09_082719388](https://github.com/user-attachment
 ---
 ## if u dont like any of these that is totally ok!!! im a proshipper for a reason, ship what you want :3333
 
-small update... i stopped doing incest/zoo darkships- im still doing dead dove tho. I ALSO NEVER SHIP MINOR X ADULT but im not gonna hate if u do
+small thingie... I NEVER SHIP MINOR X ADULT but im not gonna hate if u do
+
+reminder! fiction does not equal reality! if i roleplay as a shrimp for a time i will not become a shrimp 
